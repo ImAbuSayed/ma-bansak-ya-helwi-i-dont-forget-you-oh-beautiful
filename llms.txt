@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> ما بنساك يا حلوة والليل يطول
+> في حضنك أذوب وشوقي يجول
+> نار العشق تكوي كل الجسد
+> أريدك لي من الآن للأبد
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
